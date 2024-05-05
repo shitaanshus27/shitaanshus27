@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **shitaanshus27@gmail.com**
 
-- 📄 experiences [Fresher](Fresher)
+- 📄 experiences 1+ years
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
